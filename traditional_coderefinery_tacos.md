@@ -19,4 +19,8 @@ Rub your hunk of pork generously with chili powder, oregano, pepper, salt, and a
 
 Toss the hunk of pork, the onions, and the green chilis into the crock pot, set that sucker to LOW, and let it slow cook. I try to get mine in by 9am so I can eat around 6pm. If you're pressed for time, you can do this in about four hours on high, but the deliciousness factor is lowered.
 
+###################
+test
+##################
+
 Once the time is up, either shred the thing up in the crock pot or, if you can actually get it out without it falling apart, get it into a bowl and shred from there. That way, you're getting it out of what ends up being a GIGANTIC AMOUNT of juices. But again: oh no, your pork ended up sitting in a big vat of juice–we all weep for you.
